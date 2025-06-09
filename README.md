@@ -1,1 +1,0 @@
-# pamudyaa.github.io
